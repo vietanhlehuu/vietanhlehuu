@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-# Viet Anh - founder at [AmazingTest](https://amazingtest.com)
+# Viet Anh - creator of [AmazingTest](https://amazingtest.com)
